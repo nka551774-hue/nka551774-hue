@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=%E4%BD%A0%E5%A5%BD+%E6%88%91%E6%98%AFLALALA+%E9%80%99%E8%A3%A1%E6%98%AF%E6%88%91%E7%9A%84%E5%B1%8E%E5%B1%B1%E8%81%9A%E9%9B%86%E5%9C%B0)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=%E4%BD%A0%E5%A5%BD+%E6%88%91%E6%98%AFLALALA+%E9%80%99%E8%A3%A1%E6%98%AF%E6%88%91%E7%9A%84%E5%B1%8E%E5%B1%B1%E8%81%9A%E9%9B%86%E5%9C%B0&color=C8A2C8)](https://git.io/typing-svg)
